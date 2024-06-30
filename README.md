@@ -1,5 +1,9 @@
 # Bétons Armés Hennebique à Rio ou l'esthétique de l'industrialisation
 
+Pedro P. Palazzo ; Danilo Matoso Macedo
+
+* * * * * * * * * * * * * * * * * * * * * * * * * * * * * * * * * * * *
+
 Dans la mosaïque des innovation techniques et esthétiques du début du
 XXe siècle, le béton armé et l'art nouveau font bonne compagnie.
 L'équilibre entre industrie et artisanat dans la production de
